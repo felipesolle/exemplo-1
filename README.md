@@ -6,3 +6,7 @@ a técnologia é incrivel.
 ela permite até transferir pokémon para computadores!
 
 ... eu me pergunto como isso funciona?
+
+eu gosto de shorts!
+
+eles são comfortaveis e faceis de usar!
